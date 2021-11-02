@@ -1,0 +1,2 @@
+# USD-
+US Dollar
